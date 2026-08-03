@@ -1,16 +1,16 @@
-## Hi there 👋
+hello!
 
-<!--
-**cloudkittys/cloudkittys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+this page is primarily used for ponytown! im not much of a coder 
 
-Here are some ideas to get you started:
+don't be afraid to interact with me! your best bet is to whisper me :)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+please ask before cuddling unless youre a moot! 
+
+
+i probably won't interact unless you talk to me first! even then i might be a little awkward ^^" apologies, my social anxiety is quite bad even online 
+
+
+if u want to see more from me, my socials are all linked on my strawpage. also, feel free to sign my ata! 
+
+oka, see ya! good timezone !! 
