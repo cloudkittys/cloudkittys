@@ -1,16 +1,25 @@
-hello!
+hiya!! my name is birdie, but you can also call me cloud! oomfs are free to come up with nicknames ♡
 
-this page is primarily used for ponytown! im not much of a coder 
+☆
 
-don't be afraid to interact with me! your best bet is to whisper me :)
+oomfs can c+h freely! non-oomfs are always free to ask !! 
 
+when alone, i'm usually off-tab. if youd like to interact please whisper me! i dont bite ♡ 
 
-please ask before cuddling unless youre a moot! 
+you're also free to send me a friend request anytime :) 
 
+☆
 
-i probably won't interact unless you talk to me first! even then i might be a little awkward ^^" apologies, my social anxiety is quite bad even online 
+im prone to being quiet and a little bit awkward,, sometimes i dont think before sending a message and get a little anxious after ^^" if i randomly go silent for a bit, please dont take it personally ♡
 
+on a similar note i also very much struggle to keep conversations going </3 again, please dont take my quietness personally!! if im sitting w u, i probably trust u :D
 
-if u want to see more from me, my socials are all linked on my strawpage. also, feel free to sign my ata! 
+☆
 
-oka, see ya! good timezone !! 
+as much as i frequent the hetalia area, i fear i know very very little </333 ill likely sit discussions about it out :p
+
+☆
+
+whisper to me about any of my interests, especially if you share one!! you can find them on my strawpage ♡
+
+right now im deep in the witch hat atelier pit, but im always prepared to yap about hermitcraft/the life series, pjsk and vocaloid in general, stardew, alnst, dayx, pokemon and (some of) genshin :D
