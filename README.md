@@ -10,6 +10,8 @@ you're also free to send me a friend request anytime :)
 
 ☆
 
+ive got pretty bad social anxiety, even online qwq
+
 im prone to being quiet and a little bit awkward,, sometimes i dont think before sending a message and get a little anxious after ^^" if i randomly go silent for a bit, please dont take it personally ♡
 
 on a similar note i also very much struggle to keep conversations going </3 again, please dont take my quietness personally!! if im sitting w u, i probably trust u :D
