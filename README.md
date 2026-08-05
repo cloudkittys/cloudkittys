@@ -18,6 +18,10 @@ on a similar note i also very much struggle to keep conversations going </3 agai
 
 ☆
 
+if you notice familiar typing habits, its probably because i stole them from someone 😁😁 i do that a lot 
+
+☆
+
 as much as i frequent the hetalia area, i fear i know very very little </333 ill likely sit discussions about it out :p
 
 ☆
