@@ -2,6 +2,10 @@ hiya!! my name is birdie, but you can also call me cloud! oomfs are free to come
 
 ☆
 
+back in school and now employed 💔 i'll likely be able to only get on in the late afternoon (est) :]
+
+☆
+
 oomfs can c+h freely! non-oomfs are always free to ask !! 
 
 when alone, i'm usually off-tab. if youd like to interact please whisper me! i dont bite ♡ 
