@@ -20,6 +20,8 @@ im prone to being quiet and a little bit awkward,, sometimes i dont think before
 
 on a similar note i also very much struggle to keep conversations going </3 again, please dont take my quietness personally!! if im sitting w u, i probably trust u :D
 
+pls iwc if talking about fire or if using ponies w visible burns! some times are worse than others ❤️
+
 ☆
 
 if you notice familiar typing habits, its probably because i stole them from someone 😁😁 i do that a lot 
