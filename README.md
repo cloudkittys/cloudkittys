@@ -2,6 +2,10 @@ hiya!! my name is birdie, but you can also call me cloud! oomfs are free to come
 
 ☆
 
+i run the rui where is blog on tumblr heh.. follow me at @uglyrui ok
+
+☆
+
 back in school and now employed 💔 i'll likely be able to only get on in the late afternoon (est) :]
 
 ☆
