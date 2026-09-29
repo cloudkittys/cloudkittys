@@ -1,3 +1,7 @@
+IF YOU COME INTO MY ATA WITH RUMORS OR ATP ANYTHING NEGATIVE I WILL KICK YOU IN THE HEAD AND IP BAN YOU
+
+☆
+
 hiya!! my name is birdie, but you can also call me cloud! oomfs are free to come up with nicknames ♡
 
 ☆
