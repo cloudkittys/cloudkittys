@@ -36,12 +36,10 @@
 <div align="center">
   <img src="https://i.pinimg.com/1200x/82/58/0b/82580b6845de51eb37313cb0bd541fbd.jpg" alt="usagi chiikawa banner" width="500" height="300">
 </div>
-<div align="left">
-dni if youre a: TERF, transphobe, homophobe, racist, pedo/groomer etc., MAGA (and just trump supporters in general), neonazi, and overall if you're just a bigot 
+dnis are the normal stuff but!
 
 
-also, hard DNI if you, under any circumstances, have told someone to kill themselves. thats not something to joke about. you will be blocked.
-</div>
+hard DNI if you, under any circumstances, have told someone to kill themselves. thats not something to joke about. you will be blocked.
 
 
 <h3>
