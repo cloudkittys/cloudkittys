@@ -33,12 +33,19 @@
   𝘪𝘧 𝘮𝘦𝘯𝘵𝘪𝘰𝘯𝘪𝘯𝘨 𝘣𝘶𝘳𝘯𝘴 𝘰𝘳 𝘧𝘪𝘳𝘦, 𝘱𝘭𝘴 𝘪𝘸𝘦𝘤 𝘰𝘳 𝘯𝘰𝘵 𝘢𝘵 𝘢𝘭𝘭
 </h4>
 
+<div align="center">
+  <img src="https://i.pinimg.com/1200x/82/58/0b/82580b6845de51eb37313cb0bd541fbd.jpg" alt="usagi chiikawa banner" width="500" height="300">
+</div>
+<div align="left">
+dni if youre a: TERF, transphobe, homophobe, racist, pedo/groomer etc., MAGA (and just trump supporters in general), neonazi, and overall if you're just a bigot 
+
+
+also, hard DNI if you, under any circumstances, have told someone to kill themselves. thats not something to joke about. you will be blocked.
+</div>
+
 
 <h3>
   𝘧𝘪𝘯𝘢𝘭 𝘵𝘩𝘪𝘯𝘨.. 𝘪𝘧𝘧 𝘸𝘦 𝘴𝘩𝘢𝘳𝘦 𝘢𝘯 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵 𝘵𝘢𝘭𝘬 2 𝘮𝘦 𝘢𝘣𝘵 𝘪𝘵!!!!!! 𝘢𝘨𝘢𝘪𝘯. 𝘪 𝘭𝘰𝘷𝘦 2𝘩𝘦𝘢𝘳 𝘱𝘦𝘰𝘱𝘭𝘦 𝘺𝘢𝘱
 
   𝘵𝘩𝘢𝘵𝘴 𝘢𝘭𝘭 !! 𝘴𝘵𝘢𝘺 𝘴𝘢𝘧𝘦 𝘪𝘭𝘺 𝘰𝘬. :)
 </h3>
-<div align="center">
-  <img src="https://i.pinimg.com/1200x/82/58/0b/82580b6845de51eb37313cb0bd541fbd.jpg" alt="usagi chiikawa banner" width="500" height="300">
-</div>
