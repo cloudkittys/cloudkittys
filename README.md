@@ -1,4 +1,3 @@
-https://docs.google.com/document/d/1J9ExI6ljogPuVeUHxrTBMbzDiUbzaOkeP7Tl6gTXRZo/edit?usp=drivesdk
 <div align="center">
   <img src="https://i.pinimg.com/736x/20/18/24/201824410e731a8e0d6c5fe96acd4edf.jpg" alt="usagi chiikawa banner" width="500" height="300">
 </div>
