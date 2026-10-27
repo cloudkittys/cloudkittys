@@ -39,7 +39,7 @@
 dnis are the normal stuff but!
 
 
-hard DNI if you, under any circumstances, have told someone to kill themselves. thats not something to joke about. you will be blocked.
+DNI if you are someone who frequently makes suicide/sh jokes or tells ppl to kill themselves.. ok thanks
 
 
 <h3>
